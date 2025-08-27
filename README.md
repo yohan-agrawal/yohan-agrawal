@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @yohan-agrawal.
-- 👀 I’m interested in Business Development Field.
 - 🌱 I’ve pursued a Bachelor of Computer Applications from Amity University Mumbai.
 - 📫 How to reach me: yohanagrawal@gmail.com.
