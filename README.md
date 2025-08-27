@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @yohan-agrawal.
-- 🌱 I’ve pursued a Bachelor of Computer Applications from Amity University Mumbai.
+- 🌱 I’ve pursued a Bachelor of Computer Applications (BCA) from Amity University Mumbai.
 - 📫 How to reach me: yohanagrawal@gmail.com.
